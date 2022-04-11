@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[Titch] https://www.pexels.com/photo/a-mannequin-in-front-of-neon-lights-background-6940093/.
