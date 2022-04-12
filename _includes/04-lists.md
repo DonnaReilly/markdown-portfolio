@@ -1,4 +1,4 @@
 # Books I love
 - _Adsense Secrets_
-- _Millionaire Within_
-- _Sunshine on a **rainy** day_
+- _Millionaire Within _
+- **Sunshine on a rainy day**
