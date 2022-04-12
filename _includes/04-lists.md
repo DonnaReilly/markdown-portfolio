@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+# Books I love
+Adsense Secrets
+Millionaire Within
+Sunshine on a rainy day
